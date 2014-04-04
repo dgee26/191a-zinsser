@@ -2,7 +2,7 @@
 
 Summary by Dillon Gee
 
-    In Zinsser's article, he addresses the issue of clutter in writing and explains 
+In Zinsser's article, he addresses the issue of clutter in writing and explains 
 how simplifying your writing can solve clutter.  Zinsser says that clutter happens 
 when writers begin to get lost in their writing and lose their train of thought. 
 He states that a writer needs to think clearly to have clear writing.Writers need 
